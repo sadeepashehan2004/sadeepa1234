@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-sadeepashehan2004/sadeepashehan2004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ හායි කට්ටිය මම sheha 🥵🤍✌️
+ sexsy boy sheha_official
+ love you ummmmah ☺️🤍
